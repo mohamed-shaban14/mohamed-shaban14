@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mohamed-shaban14
 - 👀 I’m interested in Digital Marketing
-- 🌱 I’m currently learning Digital Marketing NAnodegree Whith Udacity
+- 🌱 I’m currently learning Digital Marketing Nanodegree Whith Udacity
 - 💞️ I’m looking to collaborate on Social Media
 - 📫 How to reach me?
 
